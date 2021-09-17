@@ -1,4 +1,4 @@
-### Hi I'm chuchu!!! 👋
+### Hi, this is zhangxin AKA chuchu!!! 👋
 - 🌱 I’m currently learning magic 👻👻👻👻
 - 👯 I’m looking for 🥟🍱🥡🍟
 - 📫 How to reach me: xinzhang_xd@163.com
