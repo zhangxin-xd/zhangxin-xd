@@ -11,8 +11,7 @@
 
 
 - 🌱 I’m currently learning magic 👻👻👻👻
-- 👯 I’m looking to collaborate on ...
+- 👯 I’m looking for 🥟🍱🥡🍟
 - 📫 How to reach me: xinzhang_xd@163.com
-- 😄 Pronouns: ...
 - ⚡ Fun fact: 🐱‍🚀
 -->
