@@ -1,4 +1,4 @@
-### Hi, this is zhangxin AKA chuchu!!! 👋
+### Hi, this is ZhangXin!!! 👋
 - 🌱 I’m currently learning magic 👻👻👻👻
 - 📫 How to reach me: xinzhang_xd@163.com
 <a href="https://github.com/anuraghazra/github-readme-stats">
